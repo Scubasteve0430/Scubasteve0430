@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Scubasteve0430
+- 👀 I’m interested in mining shiba inu. new to this. any tips and pointers would be awesome. going off a hp laptop
+- 🌱
